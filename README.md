@@ -10,6 +10,6 @@ Meu nome é Bruno Barboza
 
 brubarboza1710@gmail.com
 
-@marcelopaludetto
+@zbruninj
 
 ![descrição do GIF](https://media1.tenor.com/m/MCBkr6dWLkUAAAAd/corinthians-rodrigo-garro.gif)
